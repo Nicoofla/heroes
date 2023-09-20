@@ -3,4 +3,4 @@
 Diego Ocampo
 Alejandro Elias
 Mariana Barcena
-Nicolñas Oflaerti
+Nicolas Oflaerti 35 años, Buenos Aires.
