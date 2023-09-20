@@ -2,5 +2,5 @@
 ## integrantes
 Diego Ocampo
 Alejandro Elias
-Mariana Barcena
+Mariana Barcena , 25Años , Lanus
 Nicolñas Oflaerti
